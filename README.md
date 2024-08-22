@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=VF2D9hEV1cE
+
 Method#1: ChatGPT X LaTeX
 
 ChatGPT Prompt
